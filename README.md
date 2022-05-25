@@ -27,3 +27,10 @@
 
 >**Preview**
 
+![image](https://user-images.githubusercontent.com/68319165/170269617-7309cfef-edd1-4a1e-80a7-5653644f4d66.png)
+
+![image](https://user-images.githubusercontent.com/68319165/170269717-f0c0cc33-72fa-41b2-bef0-dc61cd4b7ded.png)
+
+![image](https://user-images.githubusercontent.com/68319165/170269885-ec051d5b-e7fd-4af5-966a-fa14b1ddeace.png)
+
+![image](https://user-images.githubusercontent.com/68319165/170269941-e2b0dd07-acf9-44b2-a4d0-816f667a5606.png)
